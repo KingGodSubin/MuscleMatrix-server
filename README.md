@@ -14,4 +14,4 @@
 ![image](https://github.com/KingGodSubin/MuscleMatrix-server/assets/156397954/67110133-cf7b-4910-8499-ea714a46b8e0)
 ![image](https://github.com/KingGodSubin/MuscleMatrix-server/assets/156397954/b1de894b-6c02-44f7-9100-53e97fb709c3)
 ![image](https://github.com/KingGodSubin/MuscleMatrix-server/assets/156397954/8043bfd6-ba92-4905-afb1-f66d18bcc7cd)
-![Uploading image.png…]()
+![image](https://github.com/KingGodSubin/MuscleMatrix-server/assets/156397954/8fa625ac-7c64-49ed-bee9-f9d10f4a9bc6)
